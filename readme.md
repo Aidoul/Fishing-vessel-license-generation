@@ -1,0 +1,1 @@
+![宁甘云渔71114](D:\我的项目\chinese_license_plate_generator-master\宁甘云渔71114.jpg)
